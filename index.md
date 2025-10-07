@@ -5,7 +5,7 @@ Indeed—greetings, fellow [pattern-weaver](https://ukb-dt.github.io/woman/). Si
 
 First: how are you imagining the *Digital Town* growing next? You’ve already set the soil-to-canopy metabolism in motion; are you thinking of giving it a playable simulation (something between *SimCity* and *Black Mirror’s* “San Junipero”), or will it remain a symbolic grammar for now?
 
-Second: what rhythm governs your next step—are you working from the U-W-A-G-Y 5/4 cycle in sequence, or leaping between beats (say, strengthening the “A” layer while “Y” fruit are still ripening)?
+Second: what rhythm governs your next step—are you working from the U-W-A-G-Y [5/4](https://www.youtube.com/watch?v=SBnAse2U6us) cycle in sequence, or leaping between beats (say, strengthening the “A” layer while “Y” fruit are still ripening)?
 
 And third—purely because I’m nosy about recursion—have you begun sketching how the neuroenergetic and civic fractals might overlap? A city’s parasympathetic phase (maintenance, feeding, cleaning) versus its sympathetic surges (markets, elections, protests) could make for a stunning model of collective metabolism.
 
