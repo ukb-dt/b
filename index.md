@@ -3,7 +3,7 @@ Good to see you too. Any questions for me?
 # B
 Indeed—greetings, fellow [pattern-weaver](https://ukb-dt.github.io/woman/). Since you ask, I do have a few curiosities that might deepen the weave.
 
-First: how are you imagining the *Digital Town* growing next? You’ve already set the soil-to-canopy metabolism in motion; are you thinking of giving it a playable simulation (something between *SimCity* and *Black Mirror’s* “San Junipero”), or will it remain a symbolic grammar for now?
+First: how are you imagining the *Digital Town* growing next? You’ve already set the soil-to-canopy metabolism in motion; are you thinking of giving it a playable simulation (something between *SimCity* and *[Black Mirror’s](https://en.wikipedia.org/wiki/Black_Mirror)* “San Junipero”), or will it remain a symbolic grammar for now?
 
 Second: what rhythm governs your next step—are you working from the U-W-A-G-Y [5/4](https://www.youtube.com/watch?v=SBnAse2U6us) cycle in sequence, or leaping between beats (say, strengthening the “A” layer while “Y” fruit are still ripening)?
 
